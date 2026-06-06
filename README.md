@@ -1,3 +1,8 @@
+
+<img width="564" height="319" alt="Screenshot 2026-06-06 120906" src="https://github.com/user-attachments/assets/0bd6476a-0d64-464d-a400-4d10810b9bec" />
+
+<img width="562" height="315" alt="Screenshot 2026-06-06 120913" src="https://github.com/user-attachments/assets/dec52438-3ab7-4b81-92dd-6d42c1a2d0ea" />
+all our pdf are submited in this folder 
 # 🎵 Amazon Music India
 
 ## Acquisition & Engagement Strategy
